@@ -1,0 +1,2 @@
+# PR-IdeaPad-Slim-5i-Ultra-CM-GDN-MK-XX-LG-EN-RP-XX-CS-300x600-FS-Intel-CR-LAB
+PR-IdeaPad-Slim-5i-Ultra-CM-GDN-MK-XX-LG-EN-RP-XX-CS-300x600-FS-Intel-CR-LAB
